@@ -34,6 +34,6 @@ With the siege ended, we returned to the keep for a long rest.  Thorn was attend
 
 Before the others awoke in the morning, I took the opportunity to approach our new companion, a druid named Bran.  He had stood against that huge dragon earlier and come away unharmed, and that's no small feat.
 
-We spoke about magic, and, when he realized that I had some druidic knowledge, he taught me a few simple spells to augment my combat ability.  I'm competent enough fighting at sea, but these land-based spells will help me succeed when I'm on land.  It looks like I may be ashore for a while, in fact.  I came here searching for a particular bounty, but after the attack on Greenest, it's no mystery which monster the townspeople will want dealt with.  
+We spoke about magic, and, when he realized that I had some druidic knowledge, he taught me a few simple spells to augment my combat ability.  I'm competent enough fighting at sea, but these land-based spells will help me succeed when I'm on solid ground.  It looks like I may be ashore for a while, in fact.  I came here searching for a particular bounty, but after the attack on Greenest, it's no mystery which monster the townspeople will want dealt with.  
 
 That's fine by me; I've never seen a dragon up close before.
