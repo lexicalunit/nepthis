@@ -28,7 +28,7 @@ While I was deciding whether I could take the monster or not, Thorn rushed down 
 
 The battle started, and the dwarf got off an amazing hit with his axe.  I thought it might be over right then and there, but beyond some irritated surprise, the half dragon seemed unhurt.  He responded with a quick volley of swings with his long sword and spear, and it wasn't long before Thorn fell unconcious.  
 
-True to his word, the half dragon released the final hostage.  That was nice, I guess, but he kicked Thorn while he was down.  So much for honor.  
+True to his word, the half dragon released the final hostage.  That was nice, I guess, but he kicked Thorn while he was down.  So much for honor.  Maybe only half of him is honorable?
 
 With the siege ended, we returned to the keep for a long rest.  Thorn was attended to by several healing mages.  My sleep was restless that night.  That dream again...
 
