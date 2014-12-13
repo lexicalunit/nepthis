@@ -18,7 +18,7 @@ Thorn rushed into the room first and I followed.  We were surprised to find an a
 
 I'm a fair hand with the axe, and I was able to strike one of the kobolds from stem to stern.  It was nasty, I'm not gonna lie, but sometimes nasty is what you need if you want to make a room full of attackers turn tail and run out of the room.
 
-With the place cleared, a mage mended the door.
+With the place cleared, a mage mended the door.  I hope they have another mage who can mop up the gore.
 
 As we emerged into the keep's open courtyard, we were drawn to the parapets.  A smug, ugly (smugly?) half dragon stood below us, his soldiers behind them.  They had four hostages, a woman and three kids.
 
