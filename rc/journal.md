@@ -20,7 +20,7 @@ I'm a fair hand with the axe, and I was able to strike one of the kobolds from s
 
 With the place cleared, a mage mended the door.  I hope they have another mage who can mop up the gore.
 
-As we emerged into the keep's open courtyard, we were drawn to the parapets.  A smug, ugly (smugly?) half dragon stood below us, his soldiers behind them.  They had four hostages, a woman and three kids.
+As we emerged into the keep's open courtyard, we were drawn to the parapets.  A smug, ugly (smugly?) half dragon stood below us, his soldiers behind him guarding four hostages, a woman and three kids.
 
 Dragon guy seemed to be in charge, and he addressed us as we looked down.  Apparently he'd burned everything in town to his satisfaction and wanted to have a fight with our greatest champion.  He let the children go and promised the woman's release after the fight, win or lose, provided the rest of us didn't interrupt. Zinc seemed pretty agitated the whole time, but maybe that was just because he couldn't see over the brick railing?
 
